@@ -1,1 +1,1 @@
-# NOHO West Pilot
+# NOHO West
